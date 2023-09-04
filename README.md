@@ -1,0 +1,1 @@
+# maximuu19.wind_directions
